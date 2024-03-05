@@ -3,15 +3,15 @@
 
  ### Junior QA Engineer, Manual Testing
  
- • Serbia, Belgrad
+ • Belarus, Minsk
  
- • Tel: +381695402708 
+ • Tel: +375295501428
  
 • Email: dziarhai.natallia@gmail.com 
 
 • Telegram: https://t.me/natali_dergai 
 
-• Linkedin: linkedin.com/in/natallia-dergay-587114245
+
 
  ## SUMMARY
  
